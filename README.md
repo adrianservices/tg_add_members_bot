@@ -4,7 +4,7 @@
 ・If you want to buy the bot, contact me on Telegram: https://t.me/adrianservices👍
 
 # !! FEATURES !!
-✅Automatically adds people to your group or channel! 🔥
+✅Automatically adds people to your group or channel!🔥
 
 ✅No wait error and flood!👍
 
